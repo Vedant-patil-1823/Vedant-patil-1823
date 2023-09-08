@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Vedant-patil-1823
+- 👀 I’m interested in Making a games  
+- 🌱 I’m currently learning in Bsc CS
